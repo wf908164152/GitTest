@@ -6,8 +6,10 @@ hfuioasid
 fas
 dasiopd
 koasp[d
-daisopdniopas
-dhjasiodjopas
+daisop
+dniopas
+dhjas
+iodjopas
 dkaso
 pdfjm
 iopasdf
